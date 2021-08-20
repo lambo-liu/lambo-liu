@@ -1,4 +1,4 @@
-### Welcome &nbsp;👋
+## Welcome &nbsp;👋
 
 🌊 I'm a 2rd year CS student at the University of Waterloo
 
