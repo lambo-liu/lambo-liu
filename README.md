@@ -2,7 +2,7 @@
 
 🌊 I'm a 2rd year CS student at the University of Waterloo
 
-🎸 I like too many things to name - from chess to fantasy basketball to finding new music
+🎸 I like too many things to name - from chess to fantasy basketball to new music
 
 🌞 But above all, I like creating cool projects that make people smile!
 
