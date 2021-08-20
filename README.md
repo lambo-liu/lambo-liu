@@ -1,6 +1,6 @@
 ## Welcome &nbsp;👋
 
-🌊 I'm a 2rd year CS student at the University of Waterloo
+🌊 I'm a 2nd year CS student at the University of Waterloo
 
 🎸 I like too many things to name - from [chess](https://www.chess.com/member/lamboliu) to [fantasy basketball](https://www.espn.com/fantasy/basketball/) to [new music](https://open.spotify.com/user/tripledarts)
 
