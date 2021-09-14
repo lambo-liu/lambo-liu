@@ -1,12 +1,12 @@
 ## Welcome &nbsp;👋
 
-🌊 I'm a 2nd year CS student at the University of Waterloo
+🌊&nbsp; I'm a 2nd year CS student at the University of Waterloo
 
-🎸 I like too many things to name - from [chess](https://www.chess.com/member/lamboliu) to [fantasy basketball](https://www.espn.com/fantasy/basketball/) to [new music](https://open.spotify.com/user/tripledarts)
+🎸&nbsp; I like too many things to name - from [chess](https://www.chess.com/member/lamboliu) to [fantasy basketball](https://www.espn.com/fantasy/basketball/) to [new music](https://open.spotify.com/user/tripledarts)
 
-🌞 But above all, I like creating [cool projects](https://devpost.com/lamboliu) that make people smile!
+🌞&nbsp; But above all, I like creating [cool projects](https://devpost.com/lamboliu) that make people smile!
 
-📬 Feel free to reach out to me on my [Linkedin](https://www.linkedin.com/in/lambert-liu/), I'd love to hear from you :)
+📬&nbsp; Feel free to reach out to me on my [Linkedin](https://www.linkedin.com/in/lambert-liu/), I'd love to hear from you :)
 
 
 ### Find Me Playing &nbsp;📻
