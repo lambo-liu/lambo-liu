@@ -6,8 +6,6 @@
 
 🌞&nbsp; But above all, I like creating [software projects](https://devpost.com/lamboliu) that make people smile!
 
-📬&nbsp; Feel free to reach out to me on my [Linkedin](https://www.linkedin.com/in/lambert-liu/), I'd love to hear from you :)
-
 
 ### Find Me Playing &nbsp;📻
 
