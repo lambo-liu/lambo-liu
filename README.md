@@ -4,7 +4,7 @@
 
 🎸&nbsp; I like too many things to name - from [playing chess](https://www.chess.com/member/lamboliu) to [fantasy basketball](https://www.espn.com/fantasy/basketball/) to [discovering new music](https://open.spotify.com/user/tripledarts)
 
-🌞&nbsp; But above all, I like creating [software projects](https://devpost.com/lamboliu) that make people smile!
+🌞&nbsp; But above all, I like creating software projects that make people smile!
 
 
 ### Find Me Playing &nbsp;📻
